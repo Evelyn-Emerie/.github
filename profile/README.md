@@ -1,1 +1,1 @@
-# E&E
+# E&E Digital s.r.o.
